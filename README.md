@@ -7,5 +7,5 @@ MY HOBBIES
 3. Singing
 4. Listening to music
 5. Cycling
-6. Learning new things\
+6. Learning new things
 7. Playing Table Tennis
